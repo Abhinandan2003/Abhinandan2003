@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 📧 **Email:** [sabhi92003@gmail.com](mailto:sabhi92003@gmail.com)  
 🔗 **LinkedIn:** [Abhinandan Sharma](https://www.linkedin.com/in/abhinandan-sharma-705995219)  
 🐙 **GitHub:** [Abhinandan2003](https://github.com/Abhinandan2003)  
-🏆 **Kaggle Master:** [My Kaggle Profile](https://www.kaggle.com/abhinandansharma19)  
+🏆 **Kaggle Master:** [Abhinandan Sharma19](https://www.kaggle.com/abhinandansharma19)  
 
 ---
 
@@ -32,7 +32,7 @@ Here are some ideas to get you started:
 📅 **B.Tech in Computer Engineering (2021 - 2025)** | 🎯 **CGPA:** 8.38/10  
 
 📚 **Shamrock Christian School, Ludhiana**  
-🏅 **12th (CBSE):** 95% | 🏅 **10th (CBSE):** 83%  
+🏅 **12th (CBSE):** 95% 
 
 ---
 
